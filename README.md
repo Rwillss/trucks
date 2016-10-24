@@ -1,1 +1,5 @@
-# trucks
+There is hardly a family or a business that does not own a vehicle or even several of them. And it is no wonder, because vehicles are available in a number of sizes, designs, variations and they can be used for a variety of purposes, ranging from small passenger transportations and up to carrying heavy cargoes.
+
+While passenger vehicles are mainly used for family-related purposes, commercial vehicles are applied for business goals. This may be everything from transporting small goods and up to carrying large and heavyweight loads that take much place and need more time and attention to be transported properly. In these situations, trucks are the best variant you can go for. Just like passenger cars, trucks are available in different types, each of which has diverse specifications and characteristics.
+
+Some of the most popular and widely used trucks are available <a href="http://www.truck1.eu/trucks">here</a>, so, if you are right about to purchase one of them, you can have a look at those models and brands that are offered at the website. It also makes sense to explore the available truck options on the web. Fortunately, there are lots of informative articles everyone can find there in case of necessity. These articles provide valuable information on the right choice of trucks and other vehicles as well as ways of using them.
